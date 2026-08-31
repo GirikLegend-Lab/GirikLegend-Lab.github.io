@@ -1,1 +1,1 @@
-# girikchaos-lab.github.io
+# GirikLegend-Lab
